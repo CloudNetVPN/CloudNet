@@ -120,3 +120,5 @@ V2rayNG,NapsterneTV,Hiddifynext,V2box,Foxray, nekonbox, sing-box
 کانال تلگرام : https://t.me/CloudNet1
 
 آیدی تلگرام جهت سفارش : https://t.me/Cloud_AD
+
+ایمیل جهت خرید: CloudNet.AD@gmail.com
