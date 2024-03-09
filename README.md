@@ -1,7 +1,7 @@
 # فروش فیلتر شکن اختصاصی در مجموعه CloudNet 
 
 
-خرید فیلترشکن VPN پرسرعت V2rayNG و NapstenetV
+فروش فیلترشکن VPN پرسرعت V2rayNG و NapstenetV
 
  ✔ تانل شده و بدون قعطی ✔
 
